@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a SysOps Engineer in semiconductor industry. 
+Semiconductor Engineer @ Malaysia. Specializing SysOps :closed_lock_with_key:. Transitioning to Creative Industry :musical_note:. 
 
 
 ## 🌐 Socials:
