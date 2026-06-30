@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a SysOps Engineer in semiconductor industry. 
+Making the best out of my 5 years old MSI laptop.  
 
 
 ## 🌐 Socials:
